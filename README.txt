@@ -1,0 +1,1 @@
+Link to pdf: https://cdn2.f-cdn.com/contestentries/1525459/19993193/5d1455e3be841_thumb900.jpg?fbclid=IwAR3V6blCGrnODlP_MlSZQqMlwWhnIiuDhM7fFOFx8M7FPXu7xL_dd769qzI
